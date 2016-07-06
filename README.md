@@ -4,4 +4,30 @@
 - Try to solve prompts first using pseudocode
 - This repo requires that the overall function itself is called recursively and pays no attention to subroutines called recursively.
 - Feel free to make pull requests regarding bugs or suggestions
-- Fork it.  You know you want to.
+- Fork it.  You know you wantddd to.
+ewfewagreaw
+
+hello who dat
+erviwlrgjheiowa;
+hgiroa;woji;a
+'
+grhuiealhgruiaelkjbdckjdblwenkqekncpqine
+
+'gewage
+wagewahneoiwahgeuioaw;gjie;aw
+gnroa;gnreao;gjnreioa;gjreaio;gjraeiogjwaiojgewioagjewa
+
+WHO DSATFHEIWOHGJioegwjoiegwoi;jewgaijo;rwga
+hurigjrioagjiro;a
+a
+
+
+no
+
+
+no
+
+
+
+nooooo
+ewjoiaewjopewtapko'aewopkaetwpkoetwaop'atwopk
